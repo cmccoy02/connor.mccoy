@@ -17,7 +17,7 @@ This is also the perfect place for me to nerd out about my interests and dive de
 - AI optimism
 - Extensive gear lists
 - Design details that only Steve Jobs would care about
-- so much more
+- So much more
 
 ```
 Thanks for stopping by! I'm happy to have you here. Feel free to reach out to me on X @connormccoy_ if you want to connect.
